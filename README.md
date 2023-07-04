@@ -1,2 +1,2 @@
-Hi, my name is [Shivdatt Pandya](https://shivdattpandya.com/).
-I work with talented digital content publishing teams and together we develop frameworks to create, manage and distribute content effectively.
+Hi, my name is [Shiv](https://shivdattpandya.com/).
+As a collaborative professional, I partner with skilled content publishing and engineering teams to devise cutting-edge solutions and frameworks that optimise the creation, management, and distribution of content.
